@@ -1,6 +1,6 @@
 ## Privacy Policy
 
-Sokolov Oleg built the Like the Egg app as an Ad Supported app. This SERVICE is provided by Sokolov Oleg at no cost and is intended for use as is.
+Sokolov Oleg built the World Record Egg app as an Ad Supported app. This SERVICE is provided by Sokolov Oleg at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
